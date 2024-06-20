@@ -1,4 +1,2 @@
 # practica
-wa
-wa_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
-a_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
+w-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
